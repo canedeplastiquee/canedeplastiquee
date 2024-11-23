@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on minecraft moding
 - 📫 How to reach me discord @canedeplastique
 - 😄 Pronouns: she/they-elle/elles
-- ⚡ Fun fact: i'm french and my pronouns are different in french because i dont like the french netral pronouns
+- ⚡ Fun fact: i'm french and my pronouns are different in french because i dont like the french neutral pronouns
 
 <!---
 canedeplastiquee/canedeplastiquee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
